@@ -18,3 +18,4 @@ https://mega.nz/file/XIlSXaRL#JKP_LwIEhkZr6BxUrlJb7FZJcWoR2vbPdunqOfOfC4c (Offen
 https://drive.google.com/drive/folders/1_17xItCZ-F9VOEVrlMC3_ClCsDXLgdTn?fbclid=IwAR2ddCSM581pHScfZOneGeSPcQJz_OZHCEIcc63JLsoYgr279ns4SHOR8SA (hacking courses)
 
 https://mega.nz/folder/lm5lgQxT#Qh52YqE0-kwP_-eWohMBbw (windows).
+ 
